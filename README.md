@@ -1,7 +1,7 @@
 - 👋 I’m @Alleyiris
-- 👀 人活着就是为了周棋洛许墨谢怜魏无羡
-- 🌱 Kilo快来教教我这个菜比哇
-- 💞️ I’m looking to collaborate on ...
+- 👀 人活着就是为了周棋洛许墨谢怜魏无羡!!!!
+- 🌱 Kilo快来教教我这个菜比哇QAQ
+- 💞️ 天真永不消逝，浪漫至死不渝~
 - 📫 How to reach me ...
 
 <!---
